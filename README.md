@@ -1,7 +1,7 @@
 # Hola there, I'm Febryan - aka 👉[Febry](https://www.youtube.com/watch?v=xvFZjo5PgG0)👈 👋
 ### Before We Continue Make Sure u already click my name ^^
 
-### If U Already Click The Link Congrats xD
+### If U Already Click It Congrats xD
 ![](https://i.kym-cdn.com/photos/images/newsfeed/002/205/307/1f7.jpg)
 ##
 ## Here's Some Of My Favorite Memes :
@@ -17,9 +17,10 @@
 ### 4. [Indie](https://www.youtube.com/watch?v=gbg27oT8Z9M)
 #### And So Many More
 
-
-
-
+#
+# You Made It To The End Of The Journey >
+# Thanks For Coming - See You Later 👋 👋
+![](https://www.gifcen.com/wp-content/uploads/2021/08/waving-gif-15.gif)
 
 <!--
 **SrFebry/SrFebry** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
