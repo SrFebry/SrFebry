@@ -1,4 +1,4 @@
-# <h3 align="center">![](https://media.tenor.com/gabMJozKmfsAAAAM/luigi-spin.gif)</h3>
+# <h3 align="center">![](https://media1.tenor.com/m/vomUfCcVerQAAAAC/pixelart-japan.gif)</h3>
 #
 # Hola there, I'm Febryan Alessandro - aka 👉[Febry](https://www.youtube.com/watch?v=xvFZjo5PgG0)👈 👋
 
@@ -7,7 +7,7 @@
 - 🌱 I’m currently learning [Python](https://blog.rumahweb.com/python-adalah/), [Javascript](https://www.dicoding.com/blog/apa-itu-javascript-fungsi-dan-contohnya/), [HTML](https://www.hostinger.co.id/tutorial/apa-itu-html)
 - 💬 Ask me about anything in [Here](https://instagram.com/febryan.al_?igshid=ZDdkNTZiNTM=)
 - 📫 How to reach me: [febryanmdp@mhs.mdp.ac.id](mailto:febryanmdp@mhs.mdp.ac.id)
-- ⚡ Fun fact : I Think Backrooms Are Real
+- ⚡ Fun fact : Yes Backrooms Are Real
 
 ### Connect with me :
 
@@ -22,7 +22,7 @@
 
 ---
 
-# Thanks For Coming - See You Later 👋 👋
-![](https://www.gifcen.com/wp-content/uploads/2021/08/waving-gif-15.gif)
+# Its Good To Know You 👋 👋
+![](https://media.tenor.com/kR4JM40xWA4AAAAM/8bit-bedroom.gif)
 ---
 [![](https://visitcount.itsvg.in/api?id=SrFebry&label=Views&color=0&icon=1&pretty=true)](https://visitcount.itsvg.in)
